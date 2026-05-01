@@ -1,1 +1,19 @@
-hi! my name is okuyama lin. my birthday is november eighteenth. 
+hi there i'm lin!👋
+
+### 一言で言うと
+我の強いポジティブおしゃべりモンスター👻
+
+about me 
+# 頑張っていること
+ 英単語
+ イディオム
+ クイズ
+
+# 今までやってきたこと💪
+ 市川市スピーチコンテスト
+ 中学吹奏楽コンクール
+
+# 好きな〇〇😍
+ 米津玄師
+ ジブリ
+ 
