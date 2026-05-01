@@ -1,2 +1,1 @@
-hi! my name is okuyama lin. nice to meat you!
-my favorite season is winter.
+hi! my name is okuyama lin. my birthday is november eighteenth. 
