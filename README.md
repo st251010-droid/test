@@ -1,1 +1,2 @@
-# test　奥山凜です。
+hi! my name is okuyama lin. nice to meat you!
+my favorite season is winter.
